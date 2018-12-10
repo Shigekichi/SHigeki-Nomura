@@ -1,1 +1,1 @@
-# SHigeki-Nomura
+# Shigeki-Nomura
